@@ -2,4 +2,4 @@
 
 thanks 4 visiting my bio :3
 
-there is nothing sry
+there is nothing here sry
